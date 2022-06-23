@@ -1,1 +1,1 @@
-Create a symbolic link
+we are symbols, and inhabit symbols
