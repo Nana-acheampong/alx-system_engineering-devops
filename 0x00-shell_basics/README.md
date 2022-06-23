@@ -1,1 +1,1 @@
-Task 17
+Life is a series of commas, not periods
